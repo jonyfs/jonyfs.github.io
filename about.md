@@ -32,4 +32,4 @@ Good Communication, interpersonal skills and problem solving skills.
 
 Well focused and can meet the expected deadlines
 
-More details in my [LinkedIn Profile](https://www.linkedin.com/in/jonyfs?target=_blank).
+More details in my [LinkedIn Profile](https://www.linkedin.com/in/jonyfs).
